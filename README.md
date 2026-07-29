@@ -5,8 +5,6 @@
 5678
 
 
-winx quando damos nossas mãos
-nos tornamos poderosah :)
 
 
 Commit aleatório!
